@@ -1,0 +1,4 @@
+Kuan
+Taipei
+Hamburger
+Swimming
